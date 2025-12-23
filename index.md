@@ -53,11 +53,7 @@ If you’re seeking clarity, reconnection, and a more human relationship with le
 
 For now, the simplest way to reach me is:
 
-**Email:** your-email@example.com  
-(Replace this with your preferred contact method.)
+**Email:** salma.a.baig@gmail.com  
 
----
 
-## Notes
 
-This site is intentionally simple. It will grow slowly over time—through essays, classroom reflections, and resources for learners, parents, and educators.
